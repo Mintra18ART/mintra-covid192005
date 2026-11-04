@@ -1,0 +1,1 @@
+# mintra-covid192005
